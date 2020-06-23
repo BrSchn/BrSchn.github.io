@@ -15,3 +15,5 @@ Sehr atmosphaerisch wird die Entfremdung der beiden zu ihren jeweiligen Ehepartn
 Zitat:
 
 > Je besser Du Dich und Deine Beduerfnisse kennst, desto weniger koennen die Dinge Dir anhaben.
+
+<img src="https://www.imdb.com/title/tt0335266/mediaviewer/rm2444307456"/>
