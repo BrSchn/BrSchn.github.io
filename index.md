@@ -14,4 +14,4 @@ Sehr atmosphaerisch wird die Entfremdung der beiden zu ihren jeweiligen Ehepartn
 
 Zitat:
 
-> Je besser Du Dich und Deine Bedürfnisse kennst, desto weniger können die Dinge Dir anhaben.
+> Je besser Du Dich und Deine Beduerfnisse kennst, desto weniger koennen die Dinge Dir anhaben.
