@@ -12,3 +12,6 @@ Sehr atmosphaerisch wird die Entfremdung der beiden zu ihren jeweiligen Ehepartn
 * etwas tollpatschig
 * freundlich
 
+Zitat:
+
+> Je besser Du Dich und Deine Beduerfnisse kennst, desto weniger koennen die Dinge Dir anhaben.
